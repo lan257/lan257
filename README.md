@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on email or qq
 - 📫 How to reach me :you can reach me by email (zut177@hotmail.com,if you can,please use schinese)
 - 😄 Pronouns: learner
-- ⚡ Fun fact: i can not understart
+- ⚡ Fun fact: i can not understand
 
 <!---
 lan257/lan257 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
